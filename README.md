@@ -1,0 +1,1 @@
+# sicaklik-durumuna-gore-ekrana-normal-sicak-cok-sicak-uyarisi-verme
